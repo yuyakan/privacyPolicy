@@ -59,4 +59,4 @@ This Privacy Policy may be updated as the App adds features (such as advertising
 
 For questions or concerns regarding this Privacy Policy or the App's privacy practices, please contact:
 
-Email: kanbe1365@icloud.com
+Email: kanbe5631@gmail.com

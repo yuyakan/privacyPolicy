@@ -76,4 +76,4 @@ This policy may be updated as the App's features change. If there are significan
 If you have any questions or requests regarding this policy or the App's privacy, please contact:
 
 - Developer: Yuya Kanbetsuawa
-- Email: kanbe1365@icloud.com
+- Email: kanbe5631@gmail.com

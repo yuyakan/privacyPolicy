@@ -59,4 +59,4 @@ AI 機能は対応端末（Apple Intelligence 対応の iPhone・iPad）での�
 
 本ポリシーや本アプリのプライバシーに関するご質問・ご要望は、以下までご連絡ください。
 
-メールアドレス: kanbe1365@icloud.com
+メールアドレス: kanbe5631@gmail.com
